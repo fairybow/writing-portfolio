@@ -1,6 +1,7 @@
 # Lindsey Then
 
-> Published November 2017 in *Delmarva Review, vol. 10*
+> *Delmarva Review, vol. 10*
+> <br> Published October 11, 2017
 
 And Lindsey and I drove for a few hours or so looking at houses for fun. It was nice and warm in the car, all up and down us, for sure. The road curved and cut forward into the middles of scatter towns and neighborhoods. There was stratus hatchwork in the sky, like skated-on ice, under one bold little heartbreaker of a jet trail, and we kept the radio off and the windows open.
 
