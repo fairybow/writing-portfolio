@@ -2,6 +2,7 @@
 
 > Written for [HidrateSpark](https://hidratespark.com/blogs/hidrate-spark/what-is-the-connection-between-dehydration-and-sleep) (on behalf of [Hawke Media](https://hawkemedia.com/))
 > <br> Published September 18, 2023
+> Uncredited
 
 Understanding the intricate relationship between hydration and sleep quality can shed light on a critical aspect of your overall well-being. Sleep is, of course, essential for rejuvenation and cognitive function. However, dehydration can severely disrupt your nightly journey to dreamland, including difficulties in falling asleep and fragmented sleep patterns. So, let's examine the influence of dehydration on your body's circadian rhythm and its effect on the production of sleep-inducing hormones. But don't worry too much! HidrateSpark has some practical tips for promoting hydration and improving your sleep.
 
