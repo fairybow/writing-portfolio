@@ -1,4 +1,4 @@
-# Mariella; or, Erotic Fiction: French 101
+# Mariella; or, Erotic Fiction: French 101 <a id="top"></a>
 
 > *Et Cetera, 2012*
 
@@ -27,3 +27,5 @@ I walked through the door and into the smoky *café*. The smell that hung in the
 &nbsp;&nbsp;&nbsp;&nbsp;I held her closer. “*Je n'aime pas les mathématiques aussi. Est-ce que tu veux parler avec moi*?” I whispered. She laughed weakly and smiled that beautiful, tender smile.
 
 &nbsp;&nbsp;&nbsp;&nbsp;And just as swiftly as it had begun, it was over. She put her tattered and stretched clothes back on and turned to me. I reached into my suit jacket and gave back her hand. She looked deeply into my eyes, kissing me one last time. For five, maybe six minutes we kissed, eyes completely open. And then, just like that, she left. As the people in the *café* looked on in astonishment and the bartender cleared out the broken glass with a vacuum cleaner, I couldn't help but think about her. In a way, I loved her more than I'll ever love any woman, and I missed her even then, as she walked away and out the door and into her car and onto the highway. I wouldn't have—couldn't have—had it any other way. Two star-crossed lovers, fated only to briefly pass in the night, were we. I'll never look back and neither will she. I'll never forget the last thing she said to me, just before she left: “*Je veux parler avec toi. Je suis français*.”
+
+[:arrow_up:](#top)
