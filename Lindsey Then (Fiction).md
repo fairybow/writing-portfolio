@@ -1,4 +1,4 @@
-# Lindsey Then
+# Lindsey Then <a id="top"></a>
 
 > *Delmarva Review, vol. 10*
 > <br> Published October 11, 2017
