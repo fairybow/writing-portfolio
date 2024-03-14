@@ -1,3 +1,3 @@
-# Writing Portfolio :construction:
+# (Temp) Writing Portfolio :construction:
 
-I'm working on a nicer, more user-friendly portfolio, using Jekyll + GitHub pages!
+More user-friendly portfolio [here](https://fairybow.github.io/).
